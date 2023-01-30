@@ -1,3 +1,4 @@
+Welcome to my Profile
 - Hey! I’m Siypr
 - I’m interested in Music, and developing miniture games (sometimes).
 - I’m currently learning about how to produce/create music and video games.
