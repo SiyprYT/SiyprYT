@@ -23,7 +23,7 @@ Music:
 - [SoundCloud](https://soundcloud.com/imrainclouds)
 - [YouTube](https://youtube.com/@imrainclouds)
 - [Instagram](https://instagram.com/im.rain.clouds)
-- [Discord](https://discord.gg/rdhvS48wUK/)
+- [Discord](https://discord.gg/rdhvS48wUK)
 - [You can also just go to my poorly made website.](https://siypryt.github.io/audioplayer.html)
 
 Theres literally nothing left to say about me. If needed to contacted just join one of the 3 discords or message me on Instagram lol
