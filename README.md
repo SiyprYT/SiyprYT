@@ -8,7 +8,7 @@ Welcome to my Profile
 
 Working on:
 - Music
-- Nothing else. Its the holidays 😎
+- School...
 
 Socials:
 - [YouTube](https://youtube.com/siypr)
