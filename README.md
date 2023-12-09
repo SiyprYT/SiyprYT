@@ -1,10 +1,10 @@
 Welcome to my Profile
-- Hey! I’m Siypr
-- I’m interested in Music, and developing miniture games (sometimes).
-- I’m currently learning about how to produce/create music and video games.
+- Hey! I’m Siypr (Or Rain Clouds)
+- I’m interested in Music, and developing miniature games (sometimes).
+- I’m learning how to produce/create music and video games.
 
-- I'm 15
-- No more informationa bout me cause its weird?
+- I'm 16
+- No more information about me because it's weird?
 
 Working on:
 - Music
@@ -24,8 +24,8 @@ Music:
 - [YouTube](https://youtube.com/@imrainclouds)
 - [Instagram](https://instagram.com/im.rain.clouds)
 - [Discord](https://discord.gg/rdhvS48wUK)
-- [You can also just go to my poorly made website.](https://siypryt.github.io/audioplayer.html)
+- [You can also go to my poorly made website.](https://siypryt.github.io/audioplayer.html)
 
-Theres literally nothing left to say about me. If needed to contacted just join one of the 3 discords or message me on Instagram lol
+There's nothing left to say about me. If needed to be contacted join one of the 3 discords or message me on Instagram lol
 
 [![Discord Presence](https://lanyard.cnrad.dev/api/289955557161304067)](https://discord.com/users/289955557161304067)
