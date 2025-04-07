@@ -3,12 +3,12 @@ Welcome to my Profile
 - I’m interested in Music, and developing miniature games (sometimes).
 - I’m learning how to produce/create music and video games.
 
-- I'm 16
+- I'm 17
 - No more information about me because it's weird?
 
 Working on:
 - Music
-- School...
+- School Projects (RAHHHHH)
 
 Socials:
 - [YouTube](https://youtube.com/siypr)
